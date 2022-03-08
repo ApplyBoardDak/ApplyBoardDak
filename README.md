@@ -1,3 +1,3 @@
-I work at @ApplyBoard
+I work @ApplyBoard
 
 it's cool
