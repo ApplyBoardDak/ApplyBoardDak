@@ -1,3 +1,3 @@
-I work @ApplyBoard
+I used to work @ApplyBoard
 
-it's cool
+Check out my personal Github: @Dakkers
