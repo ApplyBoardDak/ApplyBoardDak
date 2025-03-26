@@ -1,3 +1,3 @@
-I used to work @ApplyBoard
+I used to work @ [ApplyBoard](applyboard.com)
 
-Check out my personal Github: @Dakkers
+Check out my personal Github: [@Dakkers](http://github.com/dakkers)
